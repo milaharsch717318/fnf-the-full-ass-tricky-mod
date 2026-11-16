@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/fnf-the-full-ass-tricky-mod)
+[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/m3y2pAndY0Js3luO5)
 
 </div>
 
@@ -78,7 +78,7 @@ The **Full-Ass Tricky Mod** is more than just a rhythm game expansion—it is a 
 
 <div align="center">
 
-[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/fnf-the-full-ass-tricky-mod)
+[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/m3y2pAndY0Js3luO5)
 
 </div>
 
@@ -100,7 +100,7 @@ The **Full-Ass Tricky Mod** is more than just a rhythm game expansion—it is a 
 
 <div align="center">
 
-[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://software-nation.com/fnf-the-full-ass-tricky-mod)
+[![Download Tricky Mod](https://img.shields.io/badge/Download-8A2BE2?style=for-the-badge&logo=github)](https://share.google/m3y2pAndY0Js3luO5)
 
 **Version 2.1.0 Final** — *The Apex of Nevada Chaos.*
 
